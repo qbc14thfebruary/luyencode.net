@@ -1,4 +1,0 @@
-chekc
-
-
-check on qbc
